@@ -5,7 +5,6 @@ Pido disculpas por cualquier error que pueda aparecer, los corregiré lo antes p
 ## <img src="https://i.pinimg.com/originals/d2/14/1b/d2141b114b14198ede9b3ee4f4100520.gif" width="60px"> I'm Poarch
 <p align="center">
     
-## Me encantan los gatitos, a ti igual? suscribete a mi canal entonces:) dando click [aqui](https://www.youtube.com/channel/UCqPXxG2ZdDe_ugOqMHDRMqg)
 
 ### Funciones (no todas)
 
